@@ -1,0 +1,4 @@
+- ola sou @clarinha1224
+- 🌱 meu email para comtato e maria.souza.ribeiro@escola.pr.gov.br
+- 💞️ estou interresada em aprender novas linguagens.
+- 📫 estou aprendendo a programar recentemente a linguagem javascript e scrat.
